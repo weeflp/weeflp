@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @weeflp
 - 👀 I’m interested in online and offline languages
-- 🌱 I’m currently learning Dutch
+- 🌱 I’m currently learning German (it is not going very well or very schnell)
 - 💞️ I’m looking to collaborate on anything fun
 - 📫 How to reach me: discord @weeflp
 - 😄 Pronouns: any
